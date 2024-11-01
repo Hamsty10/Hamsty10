@@ -4,7 +4,7 @@
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/guilhermescarabelott)
 
 
-### Segundo Ano de TI no Ceduo Abilio Paulo 😎
+### Segundo Ano de TI no Cedup Abilio Paulo 😎
 
 ### Linguagens que eu Estudo 📖
 
